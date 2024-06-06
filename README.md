@@ -12,5 +12,5 @@ Meu nome é André Rian Barreto
 
  @andrerianbarreto
 
- ![](https://tenor.com/pt-BR/view/smiling-sonic-the-hedgehog-sonic-prime-happy-amused-gif-27272133)
+ ![](https://media1.tenor.com/m/lN7OvgMccHUAAAAC/sonic-sonic-the-hedgehog.gif)
  
